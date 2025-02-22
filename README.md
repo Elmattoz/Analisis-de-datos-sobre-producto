@@ -1,3 +1,5 @@
+
+
 1) donde deberian ubicar su nuevo centro de operaciones de distribucion para optimizar sus operaciones
 
 la capital cordoba ya que la suma de cantidad de unidades es de 6.506.291
